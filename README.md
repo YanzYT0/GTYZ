@@ -1,0 +1,2 @@
+# GTYZ
+Private server
